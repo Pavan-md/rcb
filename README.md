@@ -1,2 +1,2 @@
 # rcb
-welcome to rcb
+welcome the world to rcbfans
